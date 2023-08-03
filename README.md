@@ -1,0 +1,1 @@
+# szanyii.io
